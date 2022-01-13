@@ -67,7 +67,7 @@ baby please
 know we live second from the cliff
 jump off and die if you want it
 I can't stop you, as you'll tell me, every day when I'm with you
-but you'll stick around if I just pay your sacramental dues, so
+but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
 it is really serendipity
