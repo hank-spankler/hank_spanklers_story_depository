@@ -310,7 +310,7 @@ no "thank you very fucking much"
 from all the ones I did this for
 let's kill them next, ungrateful whores
 ```
-Sef-Harm Used to be Cool
+Self-Harm Used to be Cool
 --------------
 ```
 chew your arm till you taste iron
