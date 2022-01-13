@@ -53,10 +53,10 @@ better someday baby hold on I gotta believe
 Big Titty Vampire GF
 --------------
 ```
-open up my veins and drain them dry
+open veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
-all that I ask is that you try
+all I ask is that you try
 
 suck the life right out of me
 how I show my love, you see
@@ -64,13 +64,14 @@ or it is now, it's just how you be
 so it'll be
 baby please
 
-know we live second from the cliff
-jump off and die if you want it
+we live
+juat a second from the cliff
+jump and die if you want it
 I can't stop you, as you'll tell me, every day when I'm with you
 but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
-'cuz it's seredipity
+it is seredipity
 I'm all that saves you and I found you
 can't die now it wouldn't do
 
@@ -87,7 +88,7 @@ just need more blood to get you out the door
 so take what you asked for
 
 bleed, bleed, bleed
-all I'm good for, don't you know
+all that I'm good for, don't you know
 suck it dry
 then throw me away, go find some more
 
