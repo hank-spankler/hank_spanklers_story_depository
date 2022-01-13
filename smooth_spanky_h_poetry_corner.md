@@ -163,7 +163,7 @@ pink little poops its so much fun
 The Walled Garden
 --------------
 ```
-kinda nice in here
+kinda nice in here these days
 putting in new flowers, maintaining the beds
 working on edging, make the borders distinct
 between soil and grass, flower and not
