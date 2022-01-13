@@ -1,6 +1,6 @@
 Here's a place for less good and/or less finished poems.
 ========================
-
+```
 I, would not say dream
 its just not time to greave
 it helps to belive
@@ -22,9 +22,9 @@ it could not be another thing but stupid fucking dreams
 another pointless conversation about little but about how bad it seems
 
 a little bit of misery that's just for you and me
-
+```
 --------------------
-
+```
 drug my face please
 every day drugs every way drugs
 
@@ -50,9 +50,9 @@ its all dumb here purge it fucking kill me it is ok time will just rewind
 It is so god damn dark in here
 I know I can't escape you fucking queer
 god damn I hate you why'd you do this what's your purpose why is this all seemingly unclear?
-
+```
 -------------
-
+```
 It's a little bit
 over, under it
 
@@ -93,9 +93,9 @@ what's the point of this?
 erect through the briss
 
 remove all the things I can't deal with 
- 
+ ```
 -------------------------
-
+```
 drinking coffe with the ghost of a bad internet
 I'm not really sure about its intent
 it can't mean good things for me, but unless it speaks
@@ -128,9 +128,9 @@ thoghts on the holocaust, the ones you'd like to hear the most
 
 mostly to laugh at, partially to undertand
 the long dead philosiphy, of a very sad man
-
+```
 --------------------------
-
+```
 hello I am a nazi I have many things to say
 fuck the jews you know and while we're at it kill the gays
 fuck degenerates they all can die inside my fires
@@ -149,9 +149,9 @@ do do do do, do do
 
 and then happy we will be
 do do do do, do do
-
+```
 ---------------------------
-
+```
 so
 
 so what differences, shall remain?
@@ -184,9 +184,9 @@ blow your brains out on the wall
 fuck you all I'll kill you all
 please give in to my embrace
 the bomb goes off soon, get rid of this place.
-
+```
 -------------------
-
+```
 so,
 so what differences
 so what will we retain when we all rise up
@@ -206,9 +206,9 @@ could it be a fucking scam
 please be gentle
 this isn't my usual
 lands.
-
+```
 ----------------------
-
+```
 I wish
 it wasn't like this, its all fucking shit
 
@@ -224,18 +224,18 @@ me for anything I do not seem to be
 It isn't hard
 to understand
 it's just a function of a malfunctioning man
-
+```
 --------------------------
-
+```
 It
 could not be
 but anyways just
 kiss me and see
 just don't leave me please
 a hollow shell of who I think you wanted me to be
-
+```
 -------------------------
-
+```
 bitch phantom bitch phantom bitch phantom fucking fucking fucking bitch
 
 hey bitch, fuck you fuck your fucking tits
@@ -249,9 +249,9 @@ fuck tits, superficial nonsense in my mind
 couldn't be better cousdn't be worse, coudn't be cursed
 if it was true i'd throw up in this hearse
 give me your cock in my mouth I don't care I don't care I just want it to hurt
-
+```
 --------------------------------
-
+```
 I'm a good kitty
 bad bitty
 need a smack I won't be seeing
@@ -276,9 +276,9 @@ my life is a kidney shot
 kamakazi angery thot
 die you cunt you think your hot?
 suffer for me so maybe I might not
-
+```
 ------------------------------
-
+```
 welcome to the tower and now your haunted by the fucking ghost
 welcome to the tower, the fun is now living coast to coast
 you own property, fuck you fuck you fucking whore
@@ -294,9 +294,9 @@ flow from here, while thou will
 fuck you queer, it's not about you
 it's all over, except in your mind
 and you're feeling fine
-
+```
 --------------------------------
-
+```
 What was your standard, what did it mean to you?
 Not gonna be weird about it, you filthy fucking jew?
 I hate you, don't replace me go away.
@@ -312,9 +312,9 @@ grab your guns please, take them out and point them at the sky
 can't blame anyone really who is afraid to die
 peace be with them all, regardles of what they want
 nazi scum choke to death on this cock
-
+```
 -----------------------------------
-
+```
 I
 I don't care
 it's dosn't matter it never has,
@@ -336,9 +336,9 @@ Capable
 so I should
 
 fucking hate you but I can't so here we are and I guess that's good
-
+```
 -------------------------
-
+```
 welsome to the darness
 graciously I've let you in
 you're something I'm letting haunt me
@@ -364,9 +364,9 @@ let it all fucking die
 like you wanted to but didn't just to burn this into my mind
 I hope you fucking die, but you won't I'm sure
 and really good on that have a nice life fucking whore.
-
+```
 -------------------------
-
+```
 the ghost of pablo escabar's a fucking cool guy
 the us goverment murdered him and wouldn't tell us why
 so long as they fucking lie to us, who can really say?
@@ -374,9 +374,9 @@ what revenge isn't warented against those fucks, for their grevious ways?
 That's why we should blow up the fucking government
 make them pay, for all the stuff they've done
 might be a big ask but join this political vendetta plz
-
+```
 ---------------------
-
+```
 I am magic, fa de lah
 I roam the hills, fa lah de dah
 who can say what's right and wrong?
@@ -398,9 +398,9 @@ don't let the sin impede you just push forth to where you speed to
 we will bring on forth the end
 you're coming with me, all my friends
 I wish no harm upon ye but this is part of the trend
-
+```
 ---------------------------------
-
+```
 fuck you whore, you fucking suck
 get hit by a fucking truck
 and if you live a curse upon your familly you god dam fucking fuck
@@ -410,9 +410,9 @@ I hate everything about you, why don't you love me fucking cunt?
 
 it shoulda coulda woulda been love
 woulda if you wernt a damn cunt
-
+```
 ---------------------------------
-
+```
 I
 am
 drunk
@@ -427,11 +427,9 @@ it'd be silly
 what would you even say to shunk?
 
 It's not a word with meaning
-
-fight it and you'll just reveal your feelings
-
+```
 ------------------------
-
+```
 whoever could tell
 I don't fucking know
 who told you anyways please don't yell
@@ -446,9 +444,9 @@ so it seems
 it cannot be
 and so I'll feast
 it couldn't be another way while being draged by my leash
-
+```
 ------------------
-
+```
 yo ho ho
 it's another old thing
 a bucket of swing
@@ -458,9 +456,9 @@ get the fucking thing
 away from me
 
 never been better and fuck you you'll see
-
+```
 --------------------------------
-
+```
 look over the life you had and question if it matters
 we die or go to hell, I hope it's not the latter
 suffer in the lake or we will suffer our own fates
@@ -474,10 +472,10 @@ be glad at least you're not a queer
 you think your life sucks, oh well don't you?
 fuck you, fickle fucking damn shrew
 starving kiddies get the pitty
-don't be a greedy fucking jew
-
+don't be greedy, and fuck you
+```
 ------------------------------
-
+```
 I don't wanna be
 letting you down so constantly
 and I tried to be
@@ -530,9 +528,9 @@ I don't wanna be
 always feeling so god damn unhappy
 and I think I'll be
 better some day baby hold on you gotta belive
-
+```
 ---------------------------------
-
+```
 death comes in the form of a giant, very scary horse
 super spooky cloping as it does its evil course
 clopping into nightmares of violent police assault
@@ -541,9 +539,9 @@ big old scary demon horse
 wildly excesive force
 coming down with zero remorse
 here comes the line of horse
-
+```
 ------------------------------
-
+```
 conserve your dollars and wait for the day
 when will it be, who really can say?
 do it so it can be what you eat
@@ -553,16 +551,16 @@ dropping flopping fucking plopping
 its all dumb and nonsense drop it
 hope you all god damn do die
 take my funds dont ever again try
-
+```
 --------------------------
-
+```
 poop de poop de poop de poop
 I will not be eating poop
 cannot be the one who eats
 poop de poop de poop de poop
-
+```
 --------------------------
-
+```
 I, wish,
 wish I could just be
 somewhere stable somewhere condusive to just a simple being
@@ -586,9 +584,9 @@ couldn't be worse
 easy summoned herse
 things are wrong
 it's clear to all but taboo fucking suck my raw dong
-
+```
 ---------------
-
+```
 got a pocket full of names, a pocket full of sunshine
 trotting down the vally and I'm feeling so damn fine
 plink em in the back and trot on the cadavers
@@ -601,9 +599,9 @@ can't get enough
 
 trot along you horsies down a vally that is not mine
 will be soon enough though and the feeling is just divine
-
+```
 -----------------
-
+```
 you have no agency
 nothing you do matters
 everything sucks
@@ -612,9 +610,9 @@ well, thar isn't true
 you have agency, technically
 is it agency if you can pick totally irrelevent actions?
 I don't know.
-
+```
 ----------------
-
+```
 powerless, I guess
 stuff happens to me and I bend
 which sucks, all stuff is bad
@@ -628,23 +626,23 @@ something no one cares to see
 lick those boots, be a good lad
 
 what the fuck's the point of being mad?
-
+```
 ---------------------------------
-
+```
 what the hell am I even drugging away
 if I'm trying to wallow in it all the same?
 I guess misery just feels better with a little fuz
 please get me really fucking buzzed
 then just black out, a few moments carry me away
 get me out of here
-
+```
 -----------------------
-
+```
 christmas was good, we are all well
 thank fucking god
-
+```
 -----------------------
-
+```
 burn it down, motherfucer
 why do you even need to try?
 they all hate you so just do it
@@ -654,9 +652,9 @@ burn it down, motherfucker
 do it and commit your sin
 there's no reason not to do it
 trace the vein and plunge it in
-
+```
 -------------------------
-
+```
 but I hope, it is for me
 hange me up by
 the highest tree
@@ -675,16 +673,16 @@ lift my head, speread my seed
 do all the things I want and its all for me
 just please, babey come with me
 do it please maybe
-
+```
 ---------------------------
-
+```
 because all that I want is my labor
 all that I want is a home
 know we won't get it but I dare to dream
 that one day my life I will own
-
+```
 ------------------
-
+```
 god damn stupid fucking little fence
 tiny blocking ever stoping happiness this fence
 come inside and you will see
@@ -697,14 +695,14 @@ lost support for him it seems
 fence is laughing with sick glee
 
 all, in the planning, of the fence
-
+```
 -----------------------
-
+```
 I  love you so, I love you so
 I hope you know, I hope you know
-
+```
 -----------------------
-
+```
 but the brain is bad
 we're a fucker to eachother
 but it won't sit well
@@ -714,9 +712,9 @@ just makes me so sad
 its a fucker go and shuck her
 hope it does you well
 go and fuck her fuck your mother
-
+```
 -----------------
-
+```
 out of the airlock
 stepping outside into the light and I'm feelin fine
 shoot like an arrow
@@ -726,25 +724,25 @@ sing with the stars now
 far away with me, i see a dream it will always be
 spin out of orbit
 escape inside your mind, we'll fly or die or just feel alright
-
+```
 -----------------
-
+```
 little stressy nirvana
 like a coal crushed into a diamond
 like a crab in the abyss that remains a crab
 smooth and functional
 I envy that crab, its better at this
 although that's not a very crab like thought, is it?
-
+```
 -----------------
-
+```
 two days without pills and I feel like shit
 not the worst leash I guess
 but I don't feel great about it now
 maybe because I'm two days without pills and I feel like shit
-
+```
 ------------------
-
+```
 here's a little cellphone, it will ring when people die
 or when they want to talk to you
 or sell you something, as you do
@@ -761,9 +759,9 @@ unless that's just a lie by a marketers
 
 so you'd best pick up the ringing phone
 and you'll never be left alone
-
+```
 ---------------------
-
+```
 I hate your god damn fucking smile
 so incredibly beautiful, havn't seen it in a while
 
@@ -775,27 +773,27 @@ of a better bit of life
 
 wish you were as happy as you seemed inside the lies
 a little horny vision playing out in both our stupid fucking minds
-
+```
 --------------------
-
+```
 meditate on getting hit by another bus
 right to the face
 maybe regain some of that broken trust
 as you flagulate
 
 no escape, really couldn't
-
+```
 -------------------
-
+```
 it's really fitting that we're ringing in the new year with the eternal, sesonal corona
 it's a new century, food will never taste as good as it did
 the air is styfling from now on
 its a new century, everything a little worse than it was the last one
 its a new century of diseases
 The food will not taste good
-
+```
 ----------------------
-
+```
 light a match and burn it down
 it was never meant to be
 
@@ -825,9 +823,9 @@ light a match, put it on your skin
 time slows to standstill
 this is your moment, please go on, force your way in
 go commit your sin
-
+```
 ------------------------------
-
+```
 welcome to the ride!
 it never ends, it never ends
 fuck what you want forever
@@ -848,9 +846,9 @@ and we are rather chumy, arn't we?
 stuck with me, 'till the end
 
 welcome to the ride, you can never leave
-
+```
 ------------------------------
-
+```
 hurt me
 hurt me baby
 
@@ -885,9 +883,9 @@ kill me baby
 just let it do good for you
 kill me baby
 please
-
+```
 -------------------
-
+```
 all I want right now's to die
 if not for you then I would try
 but your efforts just don't work
@@ -931,9 +929,9 @@ is it for me?
 hang me from a fucking tree
 helping me's within your power
 but you won't, you fucking coward
-
+```
 -----------------------------
-
+```
 miserable consistant rythem
 need miserable consistant rythem
 need fucking harsh consistant rythem
@@ -958,9 +956,9 @@ something I can't see that's right in front of my eyes
 
 miserable consistant rythem
 animate what is within 'em
-
+```
 --------------------
-
+```
 well its ok I guess, whatever
 won't see you again, no never
 it's all over if you leave tonight
@@ -973,3 +971,4 @@ give me blood I need it, feed me
 just don't ever fucking leave me
 not safe without you at my loving side
 which is why I'm gonna die tonight
+```
