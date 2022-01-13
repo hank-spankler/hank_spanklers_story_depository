@@ -53,7 +53,7 @@ better someday baby hold on I gotta believe
 Big Titty Vampire GF
 --------------
 ```
-open my veins and drain them dry
+open up my veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
 all that I ask is that you try
