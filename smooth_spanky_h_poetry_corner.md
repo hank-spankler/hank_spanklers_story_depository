@@ -94,7 +94,7 @@ then throw me away, go find some more
 
 gonna leave my stain on you
 when this bloodbath's done and through
-my heart only pumps these days to feed you
+my heart only pumps these days for you
 
 so fucking feed until you're through
 ```
