@@ -75,14 +75,15 @@ I'm all that saves you and I found you
 can't die now it wouldn't do
 
 suck my blood
-take it now, would you baby
-I'm begging you, I'm on my knees
+come on do it don't be shy
+cuz' I'm begging you, I'm on my knees
 please, I love you, fuck you, please
 
 someday if you're still around
 we'll laugh this off and life you've found
 stretching on forever more
 just need more blood to get you out the door
+
 so take what you asked for
 
 bleed, bleed, bleed
