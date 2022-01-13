@@ -56,7 +56,7 @@ Big Titty Vampire GF
 open up my veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
-all that I ask is that you try
+all that I ask is that you try, to
 
 suck the life right out of me
 how I show my love, you see
@@ -70,7 +70,7 @@ I can't stop you, as you'll tell me, every day when I'm with you
 but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
-it is really serendipity
+really must be destiny
 I'm all that saves you and I found you
 can't die now it wouldn't do
 
@@ -87,7 +87,7 @@ just need more blood to get you out the door
 so take what you asked for
 
 bleed, bleed, bleed
-all that I'm good for, don't you know
+all I'm good for, don't you know
 suck it dry
 then throw me away, go find some more
 
