@@ -165,7 +165,7 @@ The Walled Garden
 ```
 kinda nice in here these days
 putting in new flowers, maintaining the beds
-working on edging, make the borders distinct
+working on the edging, make the borders distinct
 between soil and grass, flower and not
 everything perfect, as perfect as can be
 maybe it's still shitty, but fuck you
