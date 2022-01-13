@@ -56,7 +56,7 @@ Big Titty Vampire GF
 open veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
-so please just try
+so please baby, could you try
 
 suck the life right out of me
 how I show my love, you see
@@ -92,9 +92,9 @@ all that I'm good for, don't you know
 suck it dry
 then throw me away, go find some more
 
-gonna leave my heart with you
+gonna leave my stain on you
 when this bloodbath's done and through
-'cuz it only pumps these days to feed you
+my heart only pumps these days to feed you
 
 so fucking feed until you're through
 ```
