@@ -3,7 +3,7 @@ A place for poemes that I like enough to give names to.
 
 The Self-Affirming Decision to Give Up
 --------------
-
+```
 I don't wanna be
 any more than I am, just to be me
 still I tried to be
@@ -49,10 +49,10 @@ I don't wanna be
 always feeling so god damn unhappy
 and I think I'll be
 better someday baby hold on I gotta believe
-
+```
 Big Titty Vampire GF
 --------------
-
+```
 open the veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
@@ -94,10 +94,10 @@ when this bloodbath's done and through
 'cuz it only pumps these days to feed you
 
 so fucking feed until you're through
-
+```
 Living the Dream
 --------------
-
+```
 the misery comes later but it isn't here right now
 maybe when it comes we'll just get through it somehow
 hold my hand and let's pretend its love we found
@@ -111,10 +111,10 @@ here forever, you and me
 never wake up, let's lay here forever and dream
 just hold me, wait for this shoe to drop with me
 hang on baby to this blessed dream with me
-
+```
 Dream's End
 --------------
-
+```
 so, I...
 keep singing with you though I don't think that we should
 you're gonna fucking hate me soon, I'm sure
@@ -138,10 +138,10 @@ fuck you whore you fucking slut you dumb little shit
 
 sing for me baby, just please don't ever stop
 I dunno what's coming in after the drop
-
+```
 Pink Little Poops
 --------------
-
+```
 pink little poops stacked up in the toilet
 pink little poops, piled up high
 we'll die one day but not today
@@ -156,10 +156,10 @@ pink little poops stacked up in the toilet
 so many poops and so much blood
 you did stuff you're not too proud of
 pink little poops its so much fun
-
+```
 The Walled Garden
 --------------
-
+```
 kinda nice in here
 putting in new flowers, maintaining the beds
 working on edging, make the borders distinct
@@ -195,10 +195,10 @@ the flowers are nice, for now
 I guess
 I hope
 I don't know
-
+```
 A Thematically Strange Ripoff of Drunken Lullabies
 --------------
-
+```
 Oooooooooohhhhhh........
 
 have ya ever pondered
@@ -228,11 +228,10 @@ unto her baren loins you left her with and very well
 her friends they'll laugh and jeer
 but really she should hear
 her shitty parenting fucking up this chorus
-
-
+```
 A Reactionary Ditty
 --------------
-
+```
 give yourself to a loving, ever present god
 just go out and stand for something, even if you're wrong
 I refuse to be a sinner. that's no longer me
@@ -294,10 +293,10 @@ No world where this isn't what I'd be
 god, please
 don't let me bleed
 anymore...
-
+```
 A Reactionary Ditty v2
 --------------
-
+```
 we know with jews you always lose
 that's why we have the fucking noose
 hanging them up from street to street
@@ -310,10 +309,10 @@ I can hear their jewish glee
 no "thank you very fucking much"
 from all the ones I did this for
 let's kill them next, ungrateful whores
-
+```
 Sef-Harm Used to be Cool
 --------------
-
+```
 chew your arm till you taste iron
 just the best, we're fucking vibing
 blot it all out with the pain
@@ -348,10 +347,10 @@ spill my blood upon the bricks
 where I do this endless shit
 just barely getting through the days
 when I can't, burn them away
-
+```
 A Case of Consumption
 --------------
-
+```
 would you like to stay with me
 and dream a dream indulgently
 we'll have shit that's so much fun
@@ -375,10 +374,10 @@ then the world in its turn
 
 reckless consumption's what I got
 so lets do that a whole damn lot
-
+```
 Gay Shit
 --------------
-
+```
 who in here's a fucking queer?
 get on up lend us an ear!
 tell us all your gay dumb thoughts
@@ -396,10 +395,10 @@ and how this style you can't rock
 
 fuck your innocent, beautiful desiers
 and for them burn in fucking fire
-
+```
 Self-Respect
 --------------
-
+```
 Lift your butt and point it to me
 raise that ass all way up high
 I'm here for anal in your butthole
@@ -429,10 +428,10 @@ honestly already bored
 maybe I'd stay is you wern't a whore
 fucked and left with giddly glee
 and leave you riddled with disease
-
+```
 Attention
 --------------
-
+```
 I feed, on your attention
 nothing stops the bleed, like your attention
 
@@ -450,10 +449,10 @@ life support for me, well won't you?
 maybe one day I'll reset back to new
 
 from your attention
-
+```
 Thoughts on Charity
 --------------
-
+```
 give a man a loaf of bread
 shoot him in his fucking head
 was it worth it? does it matter?
@@ -494,10 +493,10 @@ so, give the man his stupid bread
 and then he dies, and you're out of bread
 not really, you didn't do this, you're hording bread
 someone shoot me in my head
-
+```
 Normal Socialism
 -----------------
-
+```
 roll out you super cow
 bring this god damn system down
 faster stronger every round
@@ -523,3 +522,4 @@ cow!
 Take fat cats to fucking town
 
 Roll out!
+```
