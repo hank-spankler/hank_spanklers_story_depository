@@ -102,12 +102,12 @@ Living the Dream
 --------------
 ```
 the misery comes later but it isn't here right now
-maybe when it comes we'll just get through it somehow
+maybe when it comes we'll just get through somehow
 hold my hand and let's pretend its love we found
 please ignore the stormy clouds
 
 look in your eyes and there's a pounding in my chest
-but there's nothing in there, pretty soon I'll bet 
+but there's nothing in there soon I'll bet 
 all floaty, wish this could always be
 here forever, you and me
 
