@@ -53,7 +53,7 @@ better someday baby hold on I gotta believe
 Big Titty Vampire GF
 --------------
 ```
-open up my veins and drain them dry
+open my veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
 all that I ask is that you try
@@ -64,7 +64,7 @@ or I know that it's just how you be
 so it'll be
 baby please
 
-live our lives a second from the cliff
+know we live second from the cliff
 jump off and die if you want it
 I can't stop you, as you'll tell me, every day when I'm with you
 but you'll stick around if I just pay your sacramental dues, so
@@ -75,14 +75,15 @@ I'm all that saves you and I found you
 can't die now it wouldn't do
 
 suck my blood
-take it now, ungrateful fuck
-cuz' I'm begging you, I'm on my knees
+take it now, would you baby
+I'm begging you, I'm on my knees
 please, I love you, fuck you, please
 
 someday if you're still around
 we'll laugh this off and life you've found
 stretching on forever more
 just need more blood to get you out the door
+so take what you asked for
 
 bleed, bleed, bleed
 all that I'm good for, don't you know
