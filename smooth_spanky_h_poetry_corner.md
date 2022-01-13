@@ -71,7 +71,7 @@ I can't stop you, as you'll tell me, every day when I'm with you
 but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
-it is seredipity
+it is serendipity
 I'm all that saves you and I found you
 can't die now it wouldn't do
 
