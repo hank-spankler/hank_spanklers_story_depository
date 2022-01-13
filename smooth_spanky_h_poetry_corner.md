@@ -60,7 +60,7 @@ all that I ask is that you try
 
 suck the life right out of me
 how I show my love, you see
-or I know that it's just how you be
+or it is now, it's just how you be
 so it'll be
 baby please
 
