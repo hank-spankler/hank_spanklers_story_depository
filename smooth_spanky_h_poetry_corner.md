@@ -79,7 +79,7 @@ come on do it don't be shy
 cuz' I'm begging you, I'm on my knees
 please, I love you, fuck you, please
 
-someday if you're still around
+someday if you are still around
 we'll laugh this off and life you've found
 stretching on forever more
 just need more blood to get you out the door
