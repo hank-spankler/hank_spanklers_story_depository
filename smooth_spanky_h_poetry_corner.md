@@ -56,7 +56,7 @@ Big Titty Vampire GF
 open veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
-please just try
+so please just try
 
 suck the life right out of me
 how I show my love, you see
