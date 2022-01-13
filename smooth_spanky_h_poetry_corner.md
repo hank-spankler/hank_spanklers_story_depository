@@ -70,12 +70,12 @@ I can't stop you, as you'll tell me, every day when I'm with you
 but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
-'cuz it is seredipity
+'cuz it's seredipity
 I'm all that saves you and I found you
 can't die now it wouldn't do
 
 suck my blood
-come on and do it don't be shy
+come and do it don't be shy
 cuz' I'm begging you, I'm on my knees
 please, I love you, fuck you, please
 
@@ -87,7 +87,7 @@ just need more blood to get you out the door
 so take what you asked for
 
 bleed, bleed, bleed
-all that I'm good for, don't you know
+all I'm good for, don't you know
 suck it dry
 then throw me away, go find some more
 
