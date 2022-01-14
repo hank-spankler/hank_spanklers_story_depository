@@ -76,7 +76,7 @@ I'm all that saves you and I found you
 can't die now it wouldn't do
 
 suck my blood
-come and do it don't be shy
+come on do it don't be shy
 cuz' I'm begging you, I'm on my knees
 please, I love you, fuck you, please
 
