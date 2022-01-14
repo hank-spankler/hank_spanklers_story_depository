@@ -306,10 +306,10 @@ hanging them up from street to street
 laugh and jeer as they kick their feet
 it's pointless, they're already dead
 living only in my head
-forever there, invariably
+forever, invariably
 I can hear their jewish glee
 "we're all gone, the world still sucks"
-no "thank you very fucking much"
+no "thank you so fucking much"
 from all the ones I did this for
 let's kill them next, ungrateful whores
 ```
