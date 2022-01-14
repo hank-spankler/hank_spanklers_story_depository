@@ -92,7 +92,7 @@ all that I'm good for, don't you know
 suck it dry
 then throw me away, go find some more
 
-gonna leave my stain on you
+I'll still leave my stain on you
 when this bloodbath's done and through
 my heart only pumps these days for you
 
