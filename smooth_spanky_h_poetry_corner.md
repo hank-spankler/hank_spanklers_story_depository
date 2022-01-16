@@ -56,28 +56,27 @@ Big Titty Vampire GF
 open up my veins and drain them dry
 darling I love you, its no lie
 hope its just enough to get you by
-so please baby, could you try
+so baby please, could you try
 
-suck the life right out of me
-how I show my love, you see
+to suck the life right out of me
+just how I show my love you see
 or it is now, it's just how you be
 so it'll be
 baby please
 
-we live
-juat a second from the cliff
-jump and die if you want it
+we live juat a second from the cliff
+jump off and die if you want it
 I can't stop you, as you'll tell me, every day when I'm with you
 but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
-it is serendipity
+it's serendipity
 I'm all that saves you and I found you
-can't die now it wouldn't do
+can't die now it wouldn't do, so
 
 suck my blood
-come on do it don't be shy
-cuz' I'm begging you, I'm on my knees
+plese baby don't be shy
+I'm begging you, I'm on my knees
 please, I love you, fuck you, please
 
 someday if you're still around
@@ -88,13 +87,13 @@ just need more blood to get you out the door
 so take what you asked for
 
 bleed, bleed, bleed
-all that I'm good for, don't you know
+all I'm good for, don't you know
 suck it dry
-then throw me away, go find some more
+throw me away, go find some more
 
 still I'll leave my stain on you
 when this bloodbath's done and through
-my heart only pumps these days for you
+my heart only pumps these days to feed you
 
 so fucking feed until you're through
 ```
