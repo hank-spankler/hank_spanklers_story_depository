@@ -87,7 +87,7 @@ just need more blood to get you out the door
 so take what you asked for
 
 bleed, bleed, bleed
-I'm good for, don't you know
+all I'm good for, don't you know
 suck it dry
 throw me away, go find some more
 
