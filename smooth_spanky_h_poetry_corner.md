@@ -59,8 +59,8 @@ to be a little lifeline, just enough to get you through
 so open up a vein and then I'll tell you what you're gonna do, you'll
 
 suck the life right out of me
-just how I show my love you see
-or it is now, it's just how you be
+just how I show my love these days you see
+not complaining, I know its how you be
 so it'll be
 baby please
 
@@ -70,7 +70,7 @@ I can't stop you, as you'll tell me, every day when I'm with you
 but you might stick around if I just pay your sacramental dues, so
 
 suck my blood
-it's serendipity
+really serendipity
 I'm all that saves you and I found you
 can't die now it wouldn't do, so
 
