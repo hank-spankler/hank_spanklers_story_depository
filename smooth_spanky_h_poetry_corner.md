@@ -55,7 +55,7 @@ Big Titty Vampire GF
 ```
 hey baby, I notice you've been blue these days
 just wish that I could make it go away
-to be a little lifeline, to be enough to get you through
+to be a little lifeline, just enough to get you through
 so open up a vein and then I'll tell you what you're gonna do, you'll
 
 suck the life right out of me
